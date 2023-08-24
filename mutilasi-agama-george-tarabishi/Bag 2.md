@@ -59,8 +59,13 @@ Kalian tidak ada nilainya sampai:
 
 Inilah perbedaan antara ad-din an-nafi' yang mereka inginkan dan ad-din al-haqiqi yang Allah inginkan. Karena itulah George Tarabishi mengatakan, mereka mendatangkan agama lalu membuang yang penting dan hanya mengambil apa yang mereka butuhkan. Mengapa? Untuk solusi yang mereka inginkan bagi hawa nafsu mereka.
 
+Sesungguhnya agama yang diinginkan oleh musuh Islam adalah _ad-din an-nafi'_ = agama yang bermanfaat bagi dunia mereka, bukan agama yang sesuai dengan Nabi _shallallahu 'alaihi wassalam._
+
 --
 
 Diringkas dan diterjemahkan oleh Zen Ibrahim hafizhahullah dari Kitab Alfu Kitab Qabla Mamat Juz 1 Pasal Munaqasyah Kitab Mudzabatut Tarats fi At-Tsaqafah Al-Arabiyah Al-Mu'ashirah karya George Tarabishi.
 
 Selasa 5 Safar 1445 H
+
+History
+++24 Agustus 2023 menambah: Sesungguhnya agama yang diinginkan oleh musuh Islam adalah _ad-din an-nafi'_ = agama yang bermanfaat bagi dunia mereka, bukan agama yang sesuai dengan Nabi _shallallahu 'alaihi wassalam._
